@@ -7,6 +7,8 @@
 - I dissociate or derealize a lot so if I'm dry or being a brick wall it's not cuz of u
 - I got social anxiety so I'm not super likely to approach u but feel free to approach me!
 - I don't block, but I hide ppl for 15m if they piss me off
+- Usually OTI unless stated otherwise in my name
+- Delusional, but I don't mind doubles (feels kinda weird but idc)
 
 **DNI:**
 - The basic stuff like proshipper, racist, homophobic, etc.
