@@ -11,7 +11,7 @@
 - I am a system. I (Riff) am almost always fronting, and only one other alter is interested in ponytown (Jason Todd).
 
 **LINKS AND STUFF:**
-*Note: Most of these are already on my GitHub. Just adding them here in case.*
+*Note: All of these are already on my GitHub. Just adding titles to them here.*
 - Riff Strawpage: https://chyzariff.straw.page
 - Jason Strawpage: https://chyzahood.straw.page
 - Collective Atabook: https://chyzariff.atabook.org
