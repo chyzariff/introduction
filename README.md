@@ -12,7 +12,7 @@
 
 **LINKS AND STUFF:**
 *Note: Most of these are already on my GitHub. Just adding them here in case.*
-Riff Strawpage: https://chyzariff.straw.page
-Jason Strawpage: https://chyzahood.straw.page
-Collective Atabook: https://chyzariff.atabook.org
-Riff Pronouns Page: https://en.pronouns.page/@chyzariff
+- Riff Strawpage: https://chyzariff.straw.page
+- Jason Strawpage: https://chyzahood.straw.page
+- Collective Atabook: https://chyzariff.atabook.org
+- Riff Pronouns Page: https://en.pronouns.page/@chyzariff
