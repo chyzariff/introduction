@@ -8,7 +8,7 @@
 - If you try and int w/ me and I ignore you that's probably because I think you're trolling. Please say smth (if u can) or I might hide u on accident
 - I am delusional. Sometimes I'm fine with doubles, sometimes I'm not. I hide people who use Bucky/Jason Carver skins when I can't handle doubles (only for like 15m tho)
 - Don't let what I've given warnings about discourage you from interacting. I'm not usually a rude or aloof person :P
-- I am a system. I (Riff) am almost always fronting, and only one other alter is currently interested in ponytown (Jason Todd).
+- mmmm huehuehuhauheuhE
 
 **LINKS AND STUFF:**
 *Note: All of these are already on my GitHub. Just adding titles to them here.*
