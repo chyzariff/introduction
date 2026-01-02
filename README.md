@@ -1,4 +1,4 @@
-# Hi, I'm Bucky. If u want u can call me Riff if we're friends.
+# Hi, I'm Bruce or Bucky. If u want u can call me B.
 ## Any prns // American (ENG only sry)
 
 **WARNINGS + INFO:**
@@ -6,6 +6,5 @@
 - A lot of the time I'm offtab or at least unresponsive so don't be discouraged by that, I still appreciate people sitting near me
 - I am sometimes paranoid or otherwise not okay. I will put "IWC" in my name if I am feeling unwell.
 - If you try and int w/ me and I ignore you that's probably because I think you're trolling. Please say smth (if u can) or I might hide u on accident
-- I am delusional. Sometimes I'm fine with doubles, sometimes I'm not. I hide people who use Bucky/Jason Carver skins when I can't handle doubles (only for like 15m tho)
+- I am delusional. Sometimes I'm fine with doubles, sometimes I'm not. I hide people who use Bucky/Batman skins when I can't handle doubles (only for like 15m tho)
 - Don't let what I've given warnings about discourage you from interacting. I'm not usually a rude or aloof person :P
-- mmmm huehuehuhauheuhE
