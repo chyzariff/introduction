@@ -1,4 +1,4 @@
-# Hi, I'm Bruce or Bucky. If u want u can call me B.
+# Hi, I'm B. Feel free to call me Bruce or Bucky if you want.
 ## Any prns // American (ENG only sry)
 
 **WARNINGS + INFO:**
