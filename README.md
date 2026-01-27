@@ -1,5 +1,5 @@
 # Hi, I'm B. Feel free to call me Bruce or Bucky if you want.
-## Any prns // American (ENG only sry)
+## He/they // American (ENG only sry)
 
 **WARNINGS + INFO:**
 - Feel free to cuddle with me if I'm alone and don't have anything in my name stating otherwise (may include "iwec" on rare occasions)
